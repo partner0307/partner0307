@@ -1,1 +1,1 @@
-![Group 5 (1)](https://github.com/ItamiWorld/ItamiWorld/assets/131968992/220b7b7c-429d-43f0-91a3-0460d9a948f4)
+![Group 12](https://github.com/partner0307/partner0307/assets/131968992/20c9322b-3b37-41ff-b89c-c8854e7c1348)
